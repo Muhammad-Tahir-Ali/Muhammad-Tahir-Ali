@@ -21,7 +21,7 @@ I am a passionate web developer with a keen interest in creating dynamic and res
 - Community-driven Tech Initiatives
 
 📫 How to reach me:
-- Email: workwithtahir786@gmail.com
+- Email: workwithali786@gmail.com
 - LinkedIn: [Muhammad Tahir](https://www.linkedin.com/in/muhammadtahirexpertwebdeveloper)
 
 😄 Pronouns: He/Him
